@@ -1,2 +1,2 @@
 # Hello-World
-This is for me to learn as i am an idiot and do not deserve to live
+This is for me to learn as i am an idiot and do not deserve to live, my wife hates me and my kid thinks im fat
